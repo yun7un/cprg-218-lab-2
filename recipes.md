@@ -135,3 +135,18 @@ Instructions:
 4. Sprinkle your work surface with flour and roll out bottom pie crust to a 12" diameter circle. Wrap it around your rolling pin to transfer it to the 9" pie plate. Add apple mixture, mounding slightly in the center and being careful not to get the filling on the edges which would make it difficult to seal.
 5. Roll second crust into an 11" round and cut into 10 even thickness strips using a pizza cutter. Arrange strips in a woven lattice pattern over the top (see video tutorial). Beat together 1 egg and 1 Tbsp water and brush the top with egg mixture.
 6. Bake at 425˚F in the center of the oven for 15 minutes. Reduce the heat to 350˚F and continue baking another 45 minutes or until apples are soft and filling is bubbling through the vents.* Rest at room temp 1 hour before serving.
+
+
+### Ice cream
+
+Ingredients: 
+- 2 cups heavy cream
+- 1 cup whole milk
+- 2/3 cup granulated sugar
+- 1/8 teaspoon fine sea salt
+- 6 large egg yolks
+- choice of flavouring
+
+Instructions:
+1. In a small pot, simmer heavy cream, milk, sugar and salt until sugar completely dissolves, about 5 minutes. Remove pot from heat. In a separate bowl, whisk yolks. Whisking constantly, slowly whisk about a third of the hot cream into the yolks, then whisk the yolk mixture back into the pot with the cream. Return pot to medium-low heat and gently cook until mixture is thick enough to coat the back of a spoon (about 170 degrees on an instant-read thermometer).
+2. Strain through a fine-mesh sieve into a bowl. Cool mixture to room temperature. Cover and chill at least 4 hours or overnight. Churn in an ice cream machine according to manufacturers’ instructions. Serve directly from the machine for soft serve, or store in freezer until needed.
